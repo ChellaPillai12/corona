@@ -1,0 +1,2 @@
+# corona
+death details
